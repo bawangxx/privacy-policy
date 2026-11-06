@@ -1,0 +1,1 @@
+[wordmemo隐私策略](https://bawangxx.github.io/privacy-policy/wordmemo.html)
